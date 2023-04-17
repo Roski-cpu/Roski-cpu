@@ -1,4 +1,4 @@
-# Roski-cpu
+# Roski The Goat
 # 💫 About Me:
 🎮Gamer<br>🎴FiveM : Scripts, Vehicles & MLOs<br>👨‍💻HTML, CSS, JS & LUA (Bad At LUA )<br>🎨Graphics Designing<br>😲Fun Fact - Your ears never stop growing!
 
